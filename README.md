@@ -1,2 +1,1 @@
-# jjesusgm-mx
- Mi sitio en Hostinger
+Por favor no robarme esta página web
